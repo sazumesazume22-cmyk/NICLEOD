@@ -1,2 +1,0 @@
-# NICLEOD
-Online 
